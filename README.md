@@ -1,5 +1,4 @@
 ### Oi eu sou o Othon Gomes <img src="https://media.giphy.com/media/VgCDAzcKvsR6OM0uWg/giphy.gif" width="50">
-<img src="https://www.animatedimages.org/data/media/562/animated-line-image-0429.gif" width="400px">
 
 <div>
  
